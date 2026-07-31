@@ -146,8 +146,8 @@ Designed to identify fraud patterns and financial risks.
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: *(https://www.linkedin.com/in/nehainsights?utm_source=share_via&utm_content=profile&utm_medium=member_android)*
-* 📧 Email: *(neha.datainsights@gmail.com)*
+* 💼 [LinkedIn:](https://www.linkedin.com/in/nehainsights?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+* 📧 [Email:](neha.datainsights@gmail.com)
 
 ---
 
